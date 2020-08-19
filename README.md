@@ -1,2 +1,0 @@
-# chuanfavitaplusvps010
-chuanfavitaplusvps010
